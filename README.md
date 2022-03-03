@@ -1,2 +1,2 @@
 # Csun9
-Excited to jump into the Infinite/Creative world of Coding!
+Excited to jump into the Infinite and Creative world of Coding!
